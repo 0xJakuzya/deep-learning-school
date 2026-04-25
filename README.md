@@ -1,1 +1,1 @@
-deep learning school 2025 Autumn
+deep learning school 2025 Fall
