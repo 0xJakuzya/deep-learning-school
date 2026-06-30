@@ -1,1 +1,1 @@
-Course Deep Learning School. MIPT, Fall 2025
+Course Deep Learning School. MIPT, 2025
